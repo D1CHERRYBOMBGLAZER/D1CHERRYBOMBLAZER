@@ -22,6 +22,8 @@ All fandoms can int!! im a bit iffy on hazbin hotel/helluva boss cosplays though
 
 📍- near the benches by spawn, and if not then in the bakery!! ☁~𓂃ෆ˚
 
+soryy if im really clingy...
+
 ![Image](https://github.com/user-attachments/assets/02a416df-518c-4bae-b95b-5ae37606eaf3)
 
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
