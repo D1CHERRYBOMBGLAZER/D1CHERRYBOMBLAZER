@@ -16,7 +16,7 @@ Hypersharing Yumeshipper, with all of my yumes ofc!!💭ᶻ𝗓𐰁.ᐟ
 
 boops, kisses, n stuff like that is oky!! feel free to ask to C + H if it's already not in my name ♡ʚଓ
 
-All fandoms can int!! im a bit iffy on hazbin hotel/helluva boss fans though...•́︿•̀
+All fandoms can int!! im a bit iffy on hazbin hotel/helluva boss cosplays though...•́︿•̀
 
 ⁞fandoms i love to see interacting!- Tyler the creator (ofc!), FNaF, Dandy's World, Spongebob, BatIM, Bluey, more!! +
 
