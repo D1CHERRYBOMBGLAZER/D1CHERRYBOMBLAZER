@@ -12,9 +12,13 @@ Hypersharing Yumeshipper, with all of my yumes ofc!!💭ᶻ𝗓𐰁.ᐟ
 
 𓊆 Pony town Stuff!! 𓊇
 
-🟢- Online/just hanging out⋆˚꩜｡ 🌙- Off tab/busy doing something other than pony town ᝰ.ᐟ ⛔- Do not interact pls!!( don't worry i barely ever use this one ) ✮⋆˙
+🟢- Online/just hanging out⋆˚꩜｡ 🌙- Off tab/busy doing something other than pony town ᝰ.ᐟ ⛔- Do not interact pls!!( don't worry i barely ever use this one (＾∇＾) ) ✮⋆˙
 
-All fandoms can int!! im a bit iffy on hh/hv fans though...
+boops, kisses, n stuff like that is oky!! feel free to ask if C + H is okay if it's already not in my name ♡ʚଓ
+
+All fandoms can int!! im a bit iffy on hazbin hotel/helluva boss fans though...•́︿•̀
+
+📍- near the benches by spawn, and if not then in the bakery!! ☁~𓂃ෆ˚
 
 ![Image](https://github.com/user-attachments/assets/02a416df-518c-4bae-b95b-5ae37606eaf3)
 
