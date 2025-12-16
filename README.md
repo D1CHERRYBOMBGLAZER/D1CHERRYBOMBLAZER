@@ -26,4 +26,6 @@ soryy if im really clingy...
 
 ![Image](https://github.com/user-attachments/assets/02a416df-518c-4bae-b95b-5ae37606eaf3)
 
+i know i am looking for a perfect love...♡☁~𓂃
+
 ⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔
