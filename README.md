@@ -9,6 +9,7 @@ Hypersharing Yumeshipper, with all of my yumes ofc!!💭ᶻ𝗓𐰁.ᐟ
 ![Image](https://github.com/user-attachments/assets/166cab66-f4f0-4614-bc94-3152d549290e)
 
 ⁞Minor!!⋆˚࿔
+ᨳິ He/him!🏳️‍⚧️ ྀ ͚
 
 𓊆 Pony town Stuff!! 𓊇
 
