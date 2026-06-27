@@ -20,11 +20,10 @@ boops, kisses, n stuff like that is oky!! feel free to ask to C + H if it's alre
 
 All fandoms can int!! im a bit iffy on hazbin hotel/helluva boss cosplays though...•́︿•̀
 
-⁞fandoms i love to see interacting!- Tyler the creator (ofc!), Gorillaz, FNaF, Dandy's World, Spongebob, BatIM, Bluey, more!! +
+⁞fandoms i love to see interacting!- Tyler the creator, Gorillaz, JJK, FNaF, Dandy's World, Spongebob, BatIM, Bluey, more!! +
 
 📍- near the benches by spawn, and if not then in the bakery!! ☁~𓂃ෆ˚
 
-soryy if im really clingy...
 
 ![Image](https://github.com/user-attachments/assets/02a416df-518c-4bae-b95b-5ae37606eaf3)
 
